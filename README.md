@@ -4,3 +4,6 @@
 
 "Haha," the unicorn laughed. But the hunter was furious and not known for giving up. 
 He had a go for the second time. 
+
+The unicorn laughed again becuase the unicorn speed was to faster and the unicorn tried to zigzag to avoid the all bullets coming from the hunter.
+Hunter tried many times but he missed everytimes. I don't know which techniques he try? 
